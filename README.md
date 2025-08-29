@@ -16,7 +16,7 @@ Foreign Languages: Fluent English, Fluent Spanish
 
 🎯 Dreams
 
-I hope to be able to leverage my skills to give back to my roots in rural North Carolina and Mexico!🇲🇽🇺🇸
+I hope to be able to leverage my skills to give back to my roots in rural North Carolina and Mexico!🇺🇸🇲🇽
 
 📫 How to Reach Me
 
